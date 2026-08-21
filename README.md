@@ -1,2 +1,2 @@
 # Hi there!!!
-Thank u
+Thank you
